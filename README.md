@@ -1,5 +1,5 @@
 # SIDALCEAS-EduTech-internship-task--1
-I recently took part in a graphic design internship at SIDALCEAS Edu Tech. 
+I recently joined part in a graphic design internship at SIDALCEAS Edu Tech. 
 
 about us
 
