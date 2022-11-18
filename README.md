@@ -1,2 +1,9 @@
-# SIDALCEAS-EduTech-internship-tas--1
-I recently took part in a graphic design internship at SIDALCEAS edu tech.  
+# SIDALCEAS-EduTech-internship-task--1
+I recently took part in a graphic design internship at SIDALCEAS Edu Tech. 
+
+*DAY 1* 
+
+*TASK 1*
+
+You've to follow the given social media platforms and take the screenshot, make a pdf and submit it in the group before
+
